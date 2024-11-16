@@ -22,6 +22,8 @@ Accuracy Problem -2 :  https://www.youtube.com/shorts/606UrtbVo7Q
 
 Accuracy : https://www.youtube.com/shorts/qNawMchPFak
 
+Roc Curve : https://youtube.com/shorts/g1ecVLvRG94?feature=share
+
 
 
 
