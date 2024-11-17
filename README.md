@@ -24,6 +24,8 @@ Accuracy : https://www.youtube.com/shorts/qNawMchPFak
 
 Roc Curve : https://youtube.com/shorts/g1ecVLvRG94?feature=share
 
+            https://youtube.com/shorts/nJYhipKaR6g?feature=share
+
 
 
 
